@@ -100,6 +100,8 @@
   
                协调好发展的“软”、“硬”两面担负起激励他人的重任作为领导者，行为榜样与教练保持平易近人
 
+![TUPIAN](https://github.com/mj5219054/friendly-journey/blob/main/picture/1112653-20181019110610482-708903854.png)
+
 Leaders operate at all levels, stay connected to the details, audit frequently, and are skeptical when metrics and anecdote differ. No task is beneath them.
 领导者深入各个环节，随时掌控细节，经常进行审核，当数据与传闻不一致时持有怀疑态度。领导者不会遗漏任何工作。
 
