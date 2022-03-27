@@ -281,6 +281,7 @@ Leaders focus on the key inputs for their business and deliver them with the rig
 浮华光鲜的城市背后，是衰败凋敝的乡村。
 城市高度发达，车水马龙，熙来攘往；高楼大厦，光怪陆离。
 警察三步一岗，五步一哨，警力充足，装备精良，社会治安良好，而乡村，基本上成了无政府状态，分崩离析，一盘散沙。
+![3042](https://user-images.githubusercontent.com/79394963/160276991-06f1abbb-89a9-4576-a73b-067951baf4ed.png)
 
 
 个人的仕途，尤其在风云诡变得时代，人际关系错综复杂的社会，有能力真的不一定真的有机会提升，更多的要有机遇。
