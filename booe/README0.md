@@ -416,6 +416,7 @@ Leaders focus on the key inputs for their business and deliver them with the rig
 
 结论：群体归属意识的强弱对反规范宣传的说服效果具有明显的影响。群体归属意识越强，对群体的忠诚度就会越高，因而对与群体规范不相容的宣传就越表现出较强的抵制态度。
 
+![图片](https://user-images.githubusercontent.com/79394963/161429125-27a78fc5-1de4-4bd4-9f5e-24506a157878.png)
 
 
 群体规范对来自外部的说服活动效果的影响表现在：
@@ -433,6 +434,7 @@ Leaders focus on the key inputs for their business and deliver them with the rig
 3）群体压力也会带来错误的判断，形成对多数意见的盲目服从。
 
 11、所罗门·阿什（美国，心理学家）的小群体内的趋同行为实验
+![图片](https://user-images.githubusercontent.com/79394963/161429136-74614c8e-adb0-4269-84d1-5a031e455e88.png)
 
 原因：
 
